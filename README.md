@@ -22,7 +22,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i usually use :3 :D :( >:3 >:] >:[ :,[
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ★ i tweet a lot about games.. like. phighting, evade etc ![](https://images-ext-2.discordapp.net/external/6DY0LHiHRLiHj-dwncKJkbuWXiwfpYRQD4CeYCTLROY/https/cdn.discordapp.com/emojis/929103938765066300.gif)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i tweet a lot about games.. like. phighting, evade etc ![](https://images-ext-2.discordapp.net/external/6DY0LHiHRLiHj-dwncKJkbuWXiwfpYRQD4CeYCTLROY/https/cdn.discordapp.com/emojis/929103938765066300.gif)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/gcy1e2.png)
