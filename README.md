@@ -1,5 +1,7 @@
-![](https://files.catbox.moe/iu5zdp.png)
+![](https://files.catbox.moe/9a8tah.png)
 
 ![](https://media.tenor.com/qp1p4B_KtzAAAAAM/slingshot-catshot.gif)
 
-![](https://fontmeme.com/temporary/f1531fba6062589d898f32e310148b1a.png)
+![](https://fontmeme.com/temporary/e3c269a1bfef10358d9fe1aeb1d805ee.png)
+
+![](https://files.catbox.moe/gcy1e2.png)
