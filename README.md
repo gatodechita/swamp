@@ -1,9 +1,5 @@
 ![](https://files.catbox.moe/9a8tah.png)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ![](https://fontmeme.com/temporary/874ea41152436946de5146016d6cfa8c.png)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://fontmeme.com/temporary/e8fc5d355f0a84535e1c77283f43b947.png)
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i feel uncomf with kys jokes ![](https://images-ext-2.discordapp.net/external/6DY0LHiHRLiHj-dwncKJkbuWXiwfpYRQD4CeYCTLROY/https/cdn.discordapp.com/emojis/929103938765066300.gif)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ sorry if my eng's bad, it's not my first language : [ 
