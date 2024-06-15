@@ -1,24 +1,2 @@
-![](https://files.catbox.moe/9a8tah.png)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i feel uncomf with kys jokes ![](https://images-ext-2.discordapp.net/external/6DY0LHiHRLiHj-dwncKJkbuWXiwfpYRQD4CeYCTLROY/https/cdn.discordapp.com/emojis/929103938765066300.gif)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ sorry if my eng's bad, it's not my first language : [ 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ 13teen 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i swear and caps a lot 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i take a while to reply 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i don't speak much bc of my fucked up english
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ sometimes offtab 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ c+h 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i usually use :3 :D :( >:3 >:] >:[ :,[
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ★ i tweet a lot about games.. like. phighting, evade etc ![](https://images-ext-2.discordapp.net/external/6DY0LHiHRLiHj-dwncKJkbuWXiwfpYRQD4CeYCTLROY/https/cdn.discordapp.com/emojis/929103938765066300.gif)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/gcy1e2.png)
+![](https://media.discordapp.net/attachments/1224534808193925232/1251538060743540797/1718460289919.png?ex=666ef126&is=666d9fa6&hm=9c2e85053a67289acad3c0c65dab207a8f8c66401de30b01c2a71654b5727a9d&=&format=webp&quality=lossless&width=508&height=631)
+hi
